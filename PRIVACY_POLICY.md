@@ -84,10 +84,8 @@ For California residents, we comply with the California Consumer Privacy Act (CC
 
 If you have any questions, concerns, or requests regarding this Privacy Policy or our privacy practices, please contact us at:
 
-**[Your Company Name]**
-**Email:** [your-email@example.com]
-**Address:** [Your Business Address]
-**Website:** [Your Website URL]
+**Onur Yardımcı**
+**Email:** onuryardimci.21@gmail.com
 
 ## Compliance
 
